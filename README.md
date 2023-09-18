@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @StarLord-zero
 - I'm from Brazil 
-- 👀 I’m interested in ... schedule
+- 👀 I’m interested in ... program
 - 🌱 I’m currently learning ... computer science
 - 💞️ I’m looking to collaborate on ... proggamer
 - 📫 How to reach me ... on Instagram or 'X' LMAO
